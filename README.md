@@ -1,1 +1,0 @@
-# minji99.github.io
